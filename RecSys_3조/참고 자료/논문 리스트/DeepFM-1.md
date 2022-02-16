@@ -4,7 +4,7 @@
 
 - 관련 영상
 
-[https://www.youtube.com/watch?v=zxXRGhSQ1f4&list=PLfhWYXHycS2RD-yuoyNOT8HBQ9PBfRl3J&index=5](https://www.youtube.com/watch?v=zxXRGhSQ1f4&list=PLfhWYXHycS2RD-yuoyNOT8HBQ9PBfRl3J&index=5)
+[관련 영상](https://www.youtube.com/watch?v=zxXRGhSQ1f4&list=PLfhWYXHycS2RD-yuoyNOT8HBQ9PBfRl3J&index=5)
 
 ---
 
